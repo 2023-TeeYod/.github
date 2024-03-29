@@ -2,7 +2,7 @@
 
 ดูหนัง Tee Yod 2023 ธี่หยด เต็มเรื่อง [HD] พากย์ไทย.ธี่หยด หนังเต็ม /FILM-THAI | ดูออนไลน์.[1080] ธี่หยด(2023) หนังเต็ม HD ในภาษาไทย SUB.ดูหนัง ธี่หยด Tee Yod (2023) |ออนไลน์ ฟรี| พากย์ไทย.(ดู-หนัง) ธี่หยด Tee Yod – 2023 UHD เต็มเรื่อง.(ดู-หนัง) ธี่หยด *Tee Yod HD เต็มเรื่อง – พากย์ไทย THAI.ธี่หยด
 
-<p><b><I>ดูหนังเต็มเรื่อง ☛ <a href="https://death-whisperer-thaihd.blogspot.com/HD/death-whisperer2024" rel="noopener">Tee Yod (ธี่หยด-2023) เต็มเรื่อง HD/พากย์ไทย</a></I></b></p>
+<p><b><I>ดูหนังเต็มเรื่อง ☛ <a href="https://t.co/AxsWbqzriG" rel="noopener">Tee Yod (ธี่หยด-2023) เต็มเรื่อง HD/พากย์ไทย</a></I></b></p>
 
 เปิดตัว: 2023-10-26
 
